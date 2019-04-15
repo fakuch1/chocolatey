@@ -52,4 +52,4 @@ Anyone is **free** to collaborate.
 * Chris aka Leader (LeChris)
 * Joorren because Joorren
 * Cankiee aka Cankiee (loool)
-* Martin aka Marit
+* Martin aka Marit.
